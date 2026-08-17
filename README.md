@@ -5,7 +5,14 @@ My name is Joshua Choi and I am in my sophmore year. I am looking forward to bei
 
 This summer I traveld to London and Iceland. It was such a surreal experience because the two countires are so different. London is full with famous meuseums and monuments while, Iceland has beautiful waterfalls and hikes. For example, in London we visited the **"Churchill War Rooms"**. We were guided by a audio tour of all the underground rooms and learned of Churchill's presidency during World War 2. During our week in London we tried the many varieties of food and cultures. After our week in London we took a 2 hour flight to Icland's capital **Reykjavik**. Soon after arriving we rented a car and begin our journey of completing the **"Ring"**. Completing the **Ring** in Iceland meant that you travled around the circumference of the whole country. It was like a massive road trip where many of Iceland's waterfalls, glaciers, and sunsets.
 
-I have been playing tennis since the start of covid and am on the varsity team at Chatsworth Highschool. I have learned that tennis doesn't just push the limits of my physical endruance but my mental endurance as well. Many times during my matches I have wanted to give up because I thought my opponent was too good. I lacked the self confidence to believe in myself and want to win. I always thought that if I did end up winning the match if I even deserved it. This feeling of if I was ever good enough showed in my studies as I was always nervous during tests and didn't get the scores I wanted. Fortunatley, I learned to believe in myself and know my self worth. Tennis has taught me about discipline, hard work, and integrity not just on the courts but in every day life.
+I have been playing tennis since the start of covid and am on the varsity team at <ins>Chatsworth Highschool</ins>. I have learned that tennis doesn't just push the limits of my physical endruance but my mental endurance as well. Many times during my matches I have wanted to give up because I thought my opponent was too good. I lacked the self confidence to believe in myself and want to win. I always thought that if I did end up winning the match if I even deserved it. This feeling of if I was ever good enough showed in my studies as I was always nervous during tests and didn't get the scores I wanted. Fortunatley, I learned to believe in myself and know my self worth. Tennis has taught me about discipline, hard work, and integrity not just on the courts but in every day life.
+
+My Goals:
+- Getting straight A's
+- Doing well on all four of my AP Tests.
+- Winning more matches than losses during my tennis season.
+- Read more books.
+- Reach gold in Valorant.
 
 [This is my playlist]
 
